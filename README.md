@@ -1,0 +1,2 @@
+# huquqyordamchiuz
+law ai asisstant 
